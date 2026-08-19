@@ -1,0 +1,1 @@
+# 2026-08-19-claude-cowork-vs-openclaw-small-business-images
